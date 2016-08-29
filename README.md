@@ -1,3 +1,3 @@
 # LucidDream00
- ! [Lucid Dream] (<iframe width="1120" height="630" src="https://www.youtube.com/embed/79aP3Vkc7Vw" frameborder="0" allowfullscreen></iframe>)
+ ![Lucid Dream](https://i.ytimg.com/vi/D39UobLJMDQ/maxresdefault.jpg)
   
