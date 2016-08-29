@@ -1,3 +1,3 @@
 # LucidDream00
- !https://www.google.nl/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=&url=http%3A%2F%2Fforum.gamer.com.tw%2FC.php%3Fbsn%3D07650%26snA%3D941544&psig=AFQjCNEyPLi7CJaz_aLsTE_Pam-lGeTNaw&ust=1472516785643431
+ !https://images-2.discordapp.net/.eJwFwcENwyAMAMBdGABjwAWyDSKIRE0wAkd9VN29d1_1zEtt6hAZawPYz1V47noJz9yqbsztqnmcSxe-IYvkcty1ywKk4I1DT4F8MpZsBEwvitZSMsGji4gOnv7u_Ol69KZ-fwakItc.o4QcNyc7XPVCu-QFKFhbTJVdj6E.png
   
