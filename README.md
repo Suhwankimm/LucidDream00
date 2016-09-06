@@ -3,4 +3,4 @@
 [Video 루시드소개영상](https://youtu.be/79aP3Vkc7Vw)  
 *오로라에서 루시드가 격파되었답니다.*  
 **저도 2년안엔 잡을 수 있겠죠?**
-![루시드격파영상](https://youtu.be/fuVkD--hwTo)
+![루시드격파영상](<iframe width="854" height="480" src="https://www.youtube.com/embed/fuVkD--hwTo" frameborder="0" allowfullscreen></iframe>)
