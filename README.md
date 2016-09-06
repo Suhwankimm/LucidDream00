@@ -4,5 +4,5 @@
 *오로라에서 루시드가 격파되었답니다.*  
 **저도 2년안엔 잡을 수 있겠죠?**
 
-![루시드격파영상](https://i.ytimg.com/vi/sK5FN-ANKfU/hqdefault.jpg)
+![루시드격파영상](https://i.ytimg.com/vi/sK5FN-ANKfU/hqdefault.jpg)(https://youtu.be/fuVkD--hwTo)
 [루시드격파영상](https://youtu.be/fuVkD--hwTo)
